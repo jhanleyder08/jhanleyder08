@@ -1,4 +1,4 @@
-{}
+[![MasterHead](Jujutsu Kaisen Banner Edit Hypno GIF - Jujutsu Kaisen Banner Edit Hypno - Descobrir e Compartilhar GIFs em 2025 _ Gif Jujutsu Gifs.gif)](https://github.com/jhanleyder08)
 ## Hi there 👋
 
 <!--
