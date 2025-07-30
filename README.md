@@ -1,4 +1,4 @@
-[![MasterHead](banner.gif)](https://github.com/jhanleyder08)
+
 [![MasterHead](img1.mp4.gif)](https://github.com/jhanleyder08)
 ## Hi there 👋
 
